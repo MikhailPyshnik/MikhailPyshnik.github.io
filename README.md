@@ -1,7 +1,7 @@
 # Pyshnik Mikhail
 
 ## About me
-
+Republic of Belarus. Minsk.
 27 years old.
 
 ## Education
